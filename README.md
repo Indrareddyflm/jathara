@@ -1,2 +1,1 @@
-kallumama is a goody 
-i wanna spek to kallu
+12345678990
